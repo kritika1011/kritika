@@ -1,5 +1,1 @@
-# kritika
 
-amit
-
-kritika
